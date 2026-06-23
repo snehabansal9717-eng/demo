@@ -1,3 +1,3 @@
 # demo
 first repository
-By sneha Bansal 
+By sneha Bansal by sneha Bansal 
